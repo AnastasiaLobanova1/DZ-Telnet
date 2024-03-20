@@ -1,1 +1,2 @@
-![Telnet](https://s.mail.ru/zmbj/pakQezbLP)
+[Скриншот Telnet](https://s.mail.ru/zmbj/pakQezbLP) 
+
